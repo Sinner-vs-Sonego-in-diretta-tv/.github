@@ -1,3 +1,15 @@
+[IN DIRETTA==> https://worldsportshd.com/tennis/](https://worldsportshd.com/tennis/)
+-
+[IN DIRETTA==> https://worldsportshd.com/tennis/](https://worldsportshd.com/tennis/)
+-
+[IN DIRETTA==> https://worldsportshd.com/tennis/](https://worldsportshd.com/tennis/)
+-
+[IN DIRETTA==> https://worldsportshd.com/tennis/](https://worldsportshd.com/tennis/)
+-
+[IN DIRETTA==> https://worldsportshd.com/tennis/](https://worldsportshd.com/tennis/)
+-
+
+
 Sinner vs Sonego a Madrid: orari e come seguire il match in diretta TV e streaming Vuoi sapere quando Jannik Sinner scenderà in campo contro Lorenzo Sonego all'ATP di Madrid? Ti forniamo tutte le informazioni necessarie per non perdere questo atteso match. Segui l'incontro in diretta televisiva o tramite streaming, con tutti i dettagli sugli orari e le opzioni disponibili per la visione. Quando gioca Sinner? Dove vedere il match contro Sonego all'Atp di Madrid: orario, diretta tv e streamingDebutto con derby a Madrid per Jannik Sinner che sabato sfiderà Lorenzo Sonego. Ci sono quattro precedenti tra i due, sempre vinti dall'altoatesino, arrivato alla Caja Magica dopo un periodo di lavoro atletico a Monte-Carlo. Il match, non prima delle 12.30 sul Manolo Santana, sarà in diretta su Sky Sport Tennis e in streaming su NOW
 
 Sinner-Sonego, dove vedere la partita dell'ATP Madrid Il match tra Jannik Sinner e Lorenzo Sonego, valido per il 2° turno del Masters 1000 di Madrid, è in programma sabato 27 aprile, non prima delle ore 12.30 sul Manolo Santana Stadium della Caja Magica di Madrid. L'incontro sarà in diretta su Sky Sport Tennis e in streaming su NOW.
